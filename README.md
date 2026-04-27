@@ -1,4 +1,4 @@
-# Hi 👋 I'm Tushar Raj Ambuj
+# Hi 👋 I'm Harshit Kumar
 
 🎓 BTech CSE Student  
 💻 Programmer | AI Learner
